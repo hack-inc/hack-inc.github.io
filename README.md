@@ -2,3 +2,5 @@
 # This website is under construction, please wait few days...
 
 # Your own personal fake hacking tool
+
+FUCK JAMBANG, FUCK THE WORLD
